@@ -1,6 +1,6 @@
 ## Boas Vindas ao meu perfil 👋
 
-Meu nome é Leticia Melo 🧡
+Meu nome é Leticia Melo 🧡🧡💛
 
 
 - Estou estudando na [Alura].(https://wwww.alura.com.br)
